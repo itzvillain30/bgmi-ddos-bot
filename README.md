@@ -62,6 +62,3 @@ For any queries or support, contact [itz villain](https://t.me/itz_villain_30) o
 
 ---
 
-## OFFICIAL TELEGRAM CHANNEL
-
-OFFICIAL CHANNEL LINK : [CLICK HERE ](https://t.me/villainbgmihack)
